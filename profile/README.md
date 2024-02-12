@@ -1,1 +1,1 @@
-The UA I Tripple YEE is..
+SUNY Albany IEEE Student Chapter 
